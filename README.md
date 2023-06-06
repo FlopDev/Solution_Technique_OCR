@@ -1,0 +1,1 @@
+# Solution_Technique_OCR
